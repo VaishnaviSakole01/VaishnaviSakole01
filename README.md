@@ -11,7 +11,7 @@
 
 📫 **How to reach me:** vishalsakole749@gmail.com
 
-📄 **Know about my experiences:** [LinkedIn](https://www.linkedin.com/in/vaishnavi-sakole)
+📄 **Know about my experiences:** [LinkedIn](https://www.linkedin.com/in/vaishnavisakole)
 
 ---
 
